@@ -1,2 +1,2 @@
-DAVID effiong effiong Mboko mbooo
+DAVID effiong effiong Mboko mboo
 # ECommerceWebsite in progress...
