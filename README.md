@@ -1,2 +1,2 @@
-DAVID effiong effiong Mbo
+DAVID effiong effiong Mb
 # ECommerceWebsite in progress...
