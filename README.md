@@ -1,2 +1,2 @@
 # ECommerceWebsite in progress...
-david effiong effiong mboko mbok
+david effiong effiong mboko mbo
