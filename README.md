@@ -1,2 +1,2 @@
-David Effiong Effiong Mboko 
+David Effiong Effiong Mboko
 # ECommerceWebsite in progress...
