@@ -1,2 +1,2 @@
-David Effiong Effi
+David Effiong Eff
 # ECommerceWebsite in progress...
