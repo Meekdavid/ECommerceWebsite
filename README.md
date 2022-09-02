@@ -1,2 +1,2 @@
-David efficient efficient mboko mbok
+David efficient efficient mboko mbo
 # ECommerceWebsite in progress...
